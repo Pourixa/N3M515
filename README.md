@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @N3M515(Nemesis)
+- 👀 I’m interested in Python
+- 📫 How to reach me Email: n3m3515.p@gmail.com
